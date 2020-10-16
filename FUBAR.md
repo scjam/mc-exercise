@@ -5,3 +5,6 @@ To escape from slaughter.
 
 What is Dracula's favorite dance?
 The fang-dango!
+
+Why are vampires unpopular?
+They're a pain in the neck.
